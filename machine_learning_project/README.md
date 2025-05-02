@@ -29,9 +29,8 @@ I'm committed to growing every day through:
 ## 📫 How to Reach Me
 
 Feel free to connect or collaborate:
-- Email: your.email@example.com
-- LinkedIn: [Your LinkedIn Profile](https://linkedin.com/in/your-profile)
-- GitHub: [github.com/YOUR_USERNAME](https://github.com/YOUR_USERNAME)
+- Email: yiferumekonnen@gmail.com
+- GitHub: [github.com/yifemirazh](https://github.com/yifemirazh)
 
 ---
 
